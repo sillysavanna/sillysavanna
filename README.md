@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+## I'm currently working on making my way through Tech Elevator
+## I'm currently learning how to code
+## Ask me about my animals
+## My Pronouns are she/her
+## Fun fact about me is I'm a certified Pokemon professor
